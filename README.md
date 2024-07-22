@@ -7,6 +7,7 @@
 ![image](https://github.com/user-attachments/assets/ee8eaf17-e89c-4f74-8493-aede98892140)
 
 ![image](https://github.com/user-attachments/assets/33a0c964-ee19-4735-acab-84bd5b8ae56a)
+![image](https://github.com/user-attachments/assets/c63e508a-1eea-4e33-b731-78b79cd994a2)
 
 Задание 2
 
