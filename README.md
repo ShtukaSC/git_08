@@ -8,5 +8,6 @@
 
 
 Задание 2
+
 ![image](https://github.com/user-attachments/assets/b9cdce73-6a3c-44e0-a93a-e0e5d55e0b1f)
 
